@@ -65,7 +65,7 @@ You can:
 
 ## 👑 Author
 Made by **Usairim Kamal Azfar Wakeel**  
-Music and Lyrics made by Famous Lyrics and Music Maker and Singer
+Music and Lyrics made by Famous Lyrics and Music Maker, Singer and Writter.
 
 ---
 
